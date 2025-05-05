@@ -1,4 +1,4 @@
-Historiado jogo
+Historia do jogo
 
 Há 1000 anos, o Império Maligno chegou ao nosso mundo, trazendo destruição e horror à humanidade.
 Após tanta destruição, um herói se ergueu e lutou bravamente contra o Império Maligno. Ele derrotou os soldados mais fortes do império, conhecidos como as 'Seis Calamidades', e então travou uma batalha mortal contra o rei do império.
